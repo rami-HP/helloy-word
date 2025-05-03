@@ -1,3 +1,0 @@
-# helloy-word ..! 🥱 
-
-Some Description.
